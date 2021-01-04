@@ -5,4 +5,6 @@ in mind.
 An Unlikle Bride was taken from:
 https://pastebin.com/u/Jixijenga/1/MNmXnHwX
 
+Fundametals of Kobold Economics was taken from:
+https://pastebin.com/u/Granbul
 
